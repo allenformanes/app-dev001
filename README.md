@@ -9,3 +9,5 @@
 ![image](https://user-images.githubusercontent.com/120237814/206831899-d6ca296e-296a-4a4b-b34f-a127ff092d8e.png)
 ## 5, Slamdunk
 ![image](https://user-images.githubusercontent.com/120237814/206831920-efca78e8-0011-43bc-85d0-deeec6ffb7f9.png)
+## 6. One piece
+![image](https://user-images.githubusercontent.com/120237814/206832848-425ca6ff-907a-471e-91d4-7f8d30c172b1.png)
